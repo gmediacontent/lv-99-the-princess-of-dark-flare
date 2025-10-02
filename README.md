@@ -1,1 +1,2 @@
-# lv-99-the-princess-of-dark-flare
+# LV. 99 The Princess of Dark Flare
+La chasseuse de première génération Cha Eunha, qui avait disparu à l’intérieur d’un mystérieux et secret portail inconnu, est de retour. Vêtue d’une robe noire et portant un parapluie, elle n’a pas eu d’autre choix que de rester à l’intérieur du portail pour sauver ses camarades. Après avoir survécu en éliminant des monstres, un humain apparaît inopinément devant elle. Enfin, Eunha retourne dans le monde réel. « Bienvenue dans le monde 30 ans plus tard, Sunbae. » Ce qui se déroule devant Eunha… est un monde qui se trouve 30 ans dans le futur.
